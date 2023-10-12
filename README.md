@@ -1,2 +1,5 @@
-# portfolio-magojow
-Somos Analista de Talentos  especialista no segmento de publicidade e marketing.
+Notes 
+=========
+
+Notes Onepage Free Comming Soon HTML5 Template .
+Download Free Wordpress Version From : http://www.themefisher.com/items/notes-coming-soon-wordpress-theme/ . 
